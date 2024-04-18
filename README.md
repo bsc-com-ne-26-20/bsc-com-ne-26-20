@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Hopekings
+- 👀 I’m interested in alot of things
+- 🌱 I’m currently learning at University of Malawi pursuing Bachelor of science in computer network engineering
+- 📫 How to reach me nthakomwahc@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Basketball is life
